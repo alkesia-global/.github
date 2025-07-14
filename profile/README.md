@@ -53,7 +53,7 @@
 Untuk kolaborasi atau penawaran, silakan kontak via:
 
 - ✉️ Email: `info@alkesia.`
-- 🌐 Website: [www.alkesia.com](https://www.alkesia.)
+- 🌐 Website: [www.alkesia.](https://www.alkesia.)
 - 📱 WhatsApp: [Klik untuk chat](https://wa.me/62xxxxxxxxxxx)
 
 ---
